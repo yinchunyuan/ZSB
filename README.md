@@ -7,5 +7,5 @@
 我是报了耶鲁机构，身边的同学很多都报班了，但具体要不要报班还是要看自己（经济、学习基础、自控力等因素）
 
 # 学习
-配套的耶鲁网课听了好多遍，有[飞书学习记录表](https://scnj414lb8af.feishu.cn/base/JDZbbc2WDa3vpvs6QRPcRH2WnQh?table=tbltGSnGLYU7JxuO&view=vew40lsgzi)
+配套的耶鲁网课听了好多遍，有[飞书学习记录表](https://scnj414lb8af.feishu.cn/base/JDZbbc2WDa3vpvs6QRPcRH2WnQh?table=tbltGSnGLYU7JxuO&view=vew40lsgzi)  
 这个表我不删了，希望对学弟学妹们有用
