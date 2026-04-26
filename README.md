@@ -8,7 +8,7 @@
 
 # 学习
 配套的耶鲁网课听了好多遍，有 [飞书学习记录表](https://scnj414lb8af.feishu.cn/base/JDZbbc2WDa3vpvs6QRPcRH2WnQh?table=tbltGSnGLYU7JxuO&view=vew40lsgzi) 、[专升本数学真题卷子分析](https://scnj414lb8af.feishu.cn/base/MjBrbyhTyaZASVstPv5cL6wLnHg?table=tblx14o6RhKIy5Wo&view=vewdxfYqVm)  
-表我不删了，希望对学弟学妹们有用
+表我不删了，希望对学弟学妹们有用，飞书文档权限应该放开了
 
 ## 学习资料
 - 库克的资料就可以（数学：比如河南省专升本必刷 2000 题，我写的就是这本）
